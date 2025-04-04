@@ -2,7 +2,7 @@
 -  I’m interested in designing website.
 -  I’m currently learning mobile & web application from SMIT.
 -  I have completed a 3-month web designing course from Faith Centre.
--  I am student at Khushi begum degree college Hyderabad.
+-  I am student at Khushid begum degree college Hyderabad.
 -  I'm studying in second year class.
 -  I want to become IT engineer.
 -  my hobbies are using laptop and mobile.
